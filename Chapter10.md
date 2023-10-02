@@ -1,0 +1,1 @@
+And as for Elric, he continued his work, always innovating, always creating. But he never made another clockwork heart, for he believed some things were meant to happen only once in a lifetime.

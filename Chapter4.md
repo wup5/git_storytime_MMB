@@ -1,0 +1,1 @@
+"I heard of your clockwork heart," she whispered, her voice choked with emotion. "Could it… Could it give him another chance?"

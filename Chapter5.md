@@ -1,0 +1,1 @@
+Elric looked at the bird, then at Lila's hopeful eyes. With a nod, he went to a velvet-covered box on the highest shelf. Opening it, he revealed the clockwork heart, no bigger than a thimble but gleaming with intricate gold and silver gears.

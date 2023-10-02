@@ -1,0 +1,1 @@
+Lila's tears of joy sparkled as she hugged the bird to her chest. "How can I ever repay you?" she asked Elric.
