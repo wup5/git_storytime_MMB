@@ -1,0 +1,1 @@
+One evening, as the golden light streamed through the intricate lattice windows of the shop, a girl named Lila entered. She had wide curious eyes and a simple dress that had seen better days. In her arms, she cradled a motionless bird with ebony feathers, its tiny chest still and silent.
