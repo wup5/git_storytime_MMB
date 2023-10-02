@@ -1,0 +1,1 @@
+Whispers spread through the city about Elric's creation. They said that this heart could bring life to the lifeless, make the static dance, and, most tantalizingly, it could turn back time for its bearer. The rich and the influential came to Elric with bags of gold, but he refused to sell. The heart was not for sale; it had a special purpose.
